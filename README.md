@@ -1,1 +1,1 @@
-# bioyosefusrynaldi.github.io
+https://rynaldiwoda.github.io/bioyosefusrynaldi.github.io/
